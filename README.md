@@ -1,2 +1,1 @@
-# portfolio
-learning
+jotko vayo haha
